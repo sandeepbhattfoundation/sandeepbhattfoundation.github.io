@@ -1,1 +1,1 @@
-Sandeep Bhat Foundation website — Pro + YouTube with bank + contact details.
+Sandeep Bhat Foundation website — Pro + YouTube with bank + contact details, no SVG dot.
